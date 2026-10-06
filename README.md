@@ -1,0 +1,2 @@
+# xausignalemas
+xauusd signal emas
